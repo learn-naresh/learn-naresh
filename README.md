@@ -28,7 +28,7 @@ You can reach me via:
 He/Him
 
 ### ⚡ Fun Fact
-I'm Good in Chess 😉
+I'm an avid chess player! 😉
 
 
 
